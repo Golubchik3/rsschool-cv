@@ -1,1 +1,1 @@
-# rsschool-cv
+https://golubchik3.github.io/rsschool-cv/
